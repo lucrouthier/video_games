@@ -1,1 +1,1 @@
-This is about video games.
+This is about video games. Very cool!
