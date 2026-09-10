@@ -1,1 +1,1 @@
-This is about video games. Very cool!
+This is about video games. Very cool! Do you want to play a game?
